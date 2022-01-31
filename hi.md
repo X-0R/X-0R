@@ -1,0 +1,3 @@
+- 👋 Hi, I’m none of your fuckin buisness
+- 👀 I’m interested in getting sucked
+- � fuck off
