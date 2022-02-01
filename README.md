@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @X-0R
+- 👀 I’m interested in you fucking off
+- 🌱 I’m currently learning how to get you to fuck off
+- 💞️ I’m looking to collaborate on you fucking off
+- 📫 How to reach me fuck off
